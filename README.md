@@ -10,3 +10,4 @@ It was an amazing period where I built consistency, dedication, and leadership q
 
 ![Completion Letter](Data%20Glacier%20letter%20of%20Completion.jpg)
 
+For more details, view link: [Linkedin](https://www.linkedin.com/posts/michael-udonna-egbuzobi_letter-of-completion-activity-7301604703300128768-WX0v?utm_source=share&utm_medium=member_desktop&rcm=ACoAACrfzm8BW3JeugR2AGQWjslY1XS6XxyBo34)
